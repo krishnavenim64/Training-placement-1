@@ -1,1 +1,0 @@
-# Training-placement-1
